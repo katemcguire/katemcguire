@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @katemcguire - a software dev, rugby player, dnd enthusiast and white hat hacker in the DC area.
